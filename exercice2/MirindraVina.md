@@ -1,6 +1,6 @@
-># Binome: Mirindra et Vina
+># Binome: Mirindra et Vina :
 
 ## Biographie 1:
 Etudie à l'INSI.
 
-## Biographie 2: 
+## Biographie 2: by Vina RAFENOMANAJATO
